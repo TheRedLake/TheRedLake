@@ -1,2 +1,1 @@
-# readme
-readme
+IM MAD I CANT FIGURE TS OUT
